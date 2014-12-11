@@ -4,23 +4,23 @@
 * cheap
 * takes about 45m to prepare
 
-## Ingredients for 10 servings
+## Ingredients (serves 10)
 
-5 baguettes
-1.5kg paprika, red and yellow
-1.5kg zucchini
-1kg fresh ripe (summer), or canned and diced (winter) tomatoes
-1kg eggplant
-750g red onions
-100g tomato paste
-100ml water
-2 garlic cloves
-1 small bunch of thyme
-1 small bunch of rosemary
-olive oil
-salt
-pepper
-sugar
+* 5 baguettes
+* 1.5kg paprika, red and yellow
+* 1.5kg zucchini
+* 1kg fresh ripe (summer), or canned and diced (winter) tomatoes
+* 1kg eggplant
+* 750g red onions
+* 100g tomato paste
+* 100ml water
+* 2 garlic cloves
+* 1 small bunch of thyme
+* 1 small bunch of rosemary
+* olive oil
+* salt
+* pepper
+* sugar
 
 ## Steps
 
